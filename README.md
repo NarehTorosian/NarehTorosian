@@ -1,8 +1,8 @@
-### Hi!
+### Hi there!
 
 This is Nareh.
-Product owner / manager experienced in B2C and B2B products. 
+Product owner / manager with experience in both B2C and B2B products. 
 
 ### Contact
-- Linkedin: (https://linkedin.com/in/nareh-torosian)
-- email: nare.torosian@gmail.com
+- [Linkedin profile](https://linkedin.com/in/nareh-torosian)
+- E-mail: nare.torosian@gmail.com
